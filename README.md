@@ -1,1 +1,0 @@
-# gundamgn000.github.io
